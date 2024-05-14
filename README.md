@@ -10,7 +10,7 @@ Sou a Prof.ª Bruna Carolina
 
   brunaluz@prof.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/good-gif-15156602537404986080)
+![](https://media.tenor.com/0lcRtGPO8uAAAAAM/good.gif)
   
 
 
